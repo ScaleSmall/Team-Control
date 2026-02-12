@@ -1,0 +1,3 @@
+﻿# SEO Audit: HillCoPaint
+
+(TBD)
